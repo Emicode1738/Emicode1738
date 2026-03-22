@@ -13,7 +13,7 @@ When I am not coding, you will find me watching anime and movies, playing cozy g
 
 ### Fun Facts:
 - 💠Loves alternative fashion 
-- 💠Can speak French & Japanese(Not fluenceny level) 
+- 💠Can speak French & Japanese(Not fluent yet) 
 - 💠Pinterest scroller
   
   

@@ -1,16 +1,19 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://github.com/Emicode1738/Emicode1738/blob/main/peak.jpg" />
+</p>
 
-<!--
-**Emicode1738/Emicode1738** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Hi there! 👋
+I am Emma, a front-end dev and artist.
 
-Here are some ideas to get you started:
+I love turning ideas into clean, creative and user-friendly websites.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+When I am not coding, you will find me watching anime and movies, playing cozy games, or exploring my artistic side through vlogs and reels.
+
+---
+
+### Fun Facts:
+- 🌟Loves alternative fashion 
+- 🌟Can speak French & Japanese(Not fluenceny level) 
+- 🌟Pinterest scroller
+  
+  

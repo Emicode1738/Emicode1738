@@ -12,9 +12,9 @@ When I am not coding, you will find me watching anime and movies, playing cozy g
 ---
 
 ### Fun Facts:
-- 🌟Loves alternative fashion 
-- 🌟Can speak French & Japanese(Not fluenceny level) 
-- 🌟Pinterest scroller
+- 💠Loves alternative fashion 
+- 💠Can speak French & Japanese(Not fluenceny level) 
+- 💠Pinterest scroller
   
   
   

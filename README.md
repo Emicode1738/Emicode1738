@@ -3,7 +3,7 @@
 </p>
 
 # Hi there! 👋
-I am Emma, a front-end dev, artist, & Graphic desiginer based in Kenya.
+I am Emma, a front-end dev, artist, & Graphic designer based in Kenya.
 
 I love turning ideas into clean, creative and user-friendly websites.
 

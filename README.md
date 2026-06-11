@@ -14,7 +14,7 @@
 
 ### Fun Facts:
 - 💠J-fashion enthusiast
-- 💠Learning Japanese + a little French on the side 
+- 💠Learning Japanese 
   
   
   

@@ -15,7 +15,7 @@
 ### Fun Facts:
 - 💠J-fashion enthusiast
 - 💠Learning Japanese 
-  
+- 💠Anime Lover
   
   
   

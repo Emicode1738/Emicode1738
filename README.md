@@ -13,9 +13,7 @@
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
 ### Fun Facts:
-- 💠J-fashion enthusiast
-- 💠Learning Japanese 
 - 💠Anime Lover
-  
+- 💠Artist
   
   
